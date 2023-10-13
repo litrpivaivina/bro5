@@ -1,6 +1,6 @@
 # bro5
 instructions
-her4477
+her4
 2277555444
 02277555ккццiiii
 555777744447777juj
